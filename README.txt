@@ -1,1 +1,2 @@
-Sugadinau faila
+Sugadinau faila,
+bet dabar pataisiau
