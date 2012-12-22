@@ -1,2 +1,1 @@
-Sugadinau faila,
-bet dabar pataisiau
+Ar tikrai?
